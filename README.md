@@ -1,2 +1,2 @@
 # Tugas-Nich
-Nakal Boleh budu jangan
+Bismillah orang Sukses, AMINNNNN
