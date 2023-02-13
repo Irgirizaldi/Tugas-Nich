@@ -1,0 +1,1 @@
+Amin semoga sukses kawan
